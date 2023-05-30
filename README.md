@@ -1,3 +1,9 @@
 # Earthquake-Detector
 
-https://www.youtube.com/watch?v=9CGjKk7C9zM
+Tools 
+
+
+
+
+Uploading 20230530-200708-929.mp4…
+
